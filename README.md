@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Hyeongwoo Kim
-- 🌐 Fluent in Korean and Japanese; Learning English
+- 🌐 Fluent in Korean and Japanese
 - 🏃 Passionate about running
